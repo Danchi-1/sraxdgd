@@ -1,0 +1,1 @@
+- Watch a python video for beginner by Mosh on YouTube; at least a 6 hours long video
